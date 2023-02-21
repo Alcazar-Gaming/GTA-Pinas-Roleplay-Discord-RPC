@@ -9,5 +9,5 @@ This is only my *bored* moments. For those who want to download it, go. <br>
 ## Links
 **Discord:** https://discord.gg/2xVvmTFSXN <br>
 **Facebook:** https://www.facebook.com/gtapinasroleplay <br>
-**Instagram:** https://www.instagram.com/gtapinas/
+**Instagram:** https://www.instagram.com/gtapinas/ <br>
 **SERVER IP:  15.204.57.239:7777** 
